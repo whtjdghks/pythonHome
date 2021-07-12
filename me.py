@@ -1,2 +1,2 @@
 ckamlmcackmalcm
-qlmcpqomcq
+qlmcpqomcq연습용
